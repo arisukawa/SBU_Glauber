@@ -1,2 +1,2 @@
 # SBU_Glauber
-modified.
+又做模型！捏麻！
